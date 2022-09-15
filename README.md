@@ -1,3 +1,3 @@
 ### Hi, I'm Shirambere Edward 👋 
 
-I am a Software Engineer who is passionate about technology and the opensource community, creating technology to elevate and improve our societies.:blush:
+a Software Engineer, lazy by default...eeh a bit of a sloth, loves developing buggy systems. Anyways i am not superman but i do have many Kryptonites. I am Human:blush:
